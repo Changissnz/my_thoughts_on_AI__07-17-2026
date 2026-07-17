@@ -23,7 +23,8 @@ group.
 
 And then that one bastard from Japan, Masayoshi Son, was coming out and saying that people challenging the A.I. capital funding machine 
 were essentially blasphemists, in other words, heretics against the world economic order. Today, I read an article about Masayoshi Son 
-saying how the "AI bubble" isn't real. I wanted to personally ask him: 
+saying how the "AI bubble" isn't real. I wanted to personally ask him:  
+
 """   
 So what is and isn't real, Masayoshi? Are you an insider for Western governments growing increasingly statist, due in no small part to 
 the mess going on over in Eastern Europe?  
