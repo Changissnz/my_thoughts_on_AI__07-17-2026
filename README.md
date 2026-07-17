@@ -22,7 +22,7 @@ times are not that tolerant of honesty. Then again, honesty is usually better do
 group. 
 
 And then that one bastard from Japan, Masayoshi Son, was coming out and saying that people challenging the A.I. capital funding machine 
-were essentially blasphemists, in other words, heretics against the world economic order. Today, I read an article about Masayoshi Son 
+are essentially blasphemers, in other words, heretics against the world economic order. Today, I read an article about Masayoshi Son 
 saying how the "AI bubble" isn't real. I wanted to personally ask him:  
 
 """   
